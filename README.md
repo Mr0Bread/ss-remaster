@@ -1,1 +1,1 @@
-* SS Remaster
+SS Remaster
